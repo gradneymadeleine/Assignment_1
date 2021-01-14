@@ -1,4 +1,4 @@
-Madeleine Gradney
+Madeleine Gradney 
 CPSC-298/C Section 1
 gradney@chapman.edu
 298459
